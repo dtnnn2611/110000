@@ -21,4 +21,4 @@
 为了给用户带来更好体验，我们对站点做了深度SEO优化：每页均设有清晰的导航、相关影片内链推荐、影片分类标签，极大提高了页面浏览深度和停留时间。网站支持全端自适应设计，移动端看片同样丝滑；同时采用全球CDN加速，亚洲地区访问无延迟。
 
 立即收藏本站，畅享每日更新的日本AV免费视频合集，让你的夜晚更加精彩！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnnn2611/110000 ）</span>
